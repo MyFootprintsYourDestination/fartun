@@ -1,6 +1,8 @@
-<img width="328" height="360" alt="image" src="https://github.com/user-attachments/assets/3ae3727a-8ada-46a3-8d1c-5774bc17d17b" />
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/d516c45d-ff8a-4a57-aa4b-7dfc3b2a57b3" />
+![a15](https://github.com/user-attachments/assets/e80e477a-6a47-4943-bf71-b5b5cc93eb66)
 
-<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/5a0bdd83-18f4-4efd-a270-50466832cfb8" />
+![e117](https://github.com/user-attachments/assets/10a9af91-ed59-4911-9371-0607f72a5714)
+
 
 
 
@@ -11,7 +13,7 @@ Hi guys i like cross sans a normal amout  (i also....like the murder time trio a
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈·✦
 <img width="1200" height="900" alt="image" src="https://github.com/user-attachments/assets/6ed297a1-b05c-44d7-9309-62d51f049587" />
-
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/5a0bdd83-18f4-4efd-a270-50466832cfb8" />
 I LOOOOOVE UNDERTALE AND PROJECT SEKAIII (i'm a toya oshi)
 
 ⎛⎝( ` ᢍ ´ )⎠⎞ᵐᵘʰᵃʰᵃ
